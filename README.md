@@ -1,5 +1,6 @@
 <div align="center">
 <strong>spam follow accs will be blocked</strong>
+<strong>nothing against them i just want to be able to see who actually follows me lol</strong>
 </div>
 <img src="https://files.catbox.moe/m26qps.gif"></p>
 <br>
