@@ -6,6 +6,6 @@
 <br>
 <div align="center"> 
   
-$${\color{lightblue} read \space}$$ [rentry](https://rentry.co/sasukesarutobi)
+$${\color{lightblue} read \space}$$ [rentry](https://rentry.co/besttreasurer)
 
 
